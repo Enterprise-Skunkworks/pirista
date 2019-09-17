@@ -1,1 +1,1 @@
-Your coffee is ready
+Your coffee is ready soon
